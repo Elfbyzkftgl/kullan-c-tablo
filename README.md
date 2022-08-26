@@ -1,0 +1,1 @@
+# kullan-c-tablo
